@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MindManager for Windows extension with MindManager for Windows automatic Extension: search-functionality & priority-markers. Featuring search-functionality and
 
 
 
